@@ -1,3 +1,1 @@
 # beadando
-teszt
-dlosddfdASFSDADAcdsADASd
